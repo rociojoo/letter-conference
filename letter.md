@@ -30,7 +30,9 @@ conference experience.
 
 Gewin, V. What scientists should know about visa hurdles. Nature 569, 297–299
 (2019).
+
 Niner, H. J. & Wassermann, S. N. Better for Whom? Leveling the Injustices of
 International Conferences by Moving Online. Front. Mar. Sci. 8, 146 (2021).
+
 Woolston, C. Learning to love virtual conferences in the coronavirus era. Nature
 582, 135-136 (2020).
